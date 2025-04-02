@@ -1,0 +1,1 @@
+Logo exercise 2
